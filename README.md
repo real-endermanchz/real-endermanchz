@@ -1,8 +1,8 @@
-# Real Endermanchz's Github Reposities
+# Real Endermanchz's Github Repositories
 
 ## Welcome
 
-Hey there - welcome to my very own Github reposities! Currently, I'm still working on them and they'll be updated soon - stay tuned! 😎
+Hey there - welcome to my very own Github repositories! Currently, I'm still working on them and they'll be updated soon - stay tuned! 😎
 
 ### Stay up-to-date
 
