@@ -10,6 +10,7 @@ Stay up-to-date by following my Instagram and YouTube 👍🏻
 
 * YouTube: [https://www.youtube.com/channel/UCN-geiuWDGc26D6m5XJWOFw](http://)
 * Instagram: [https://instagram.com/_enderman.chz](http://)
+* Discord: https://discord.com/invite/n9su9YV2Bd
 
 ✉️ Have something to say? Drop your mail at m-8955892@outlook.com (If your mails aren't answered, consider direct messaging with me on Instagram instead)
 
